@@ -13,4 +13,4 @@ $${\color{#F4BB44}\text{ｓelective}}$$　   <em>sharer</em>　 yumeshipper　 �
  
  🔥 　 　iwec   always　   (⁠ﾉﾟ⁠0ﾟ⁠)⁠ﾉ⁠ 
  
-$${\color{#B33D0B}  ͜͝ ͡  ݁⑅ִ۫　}$$　[atabook](https://fushiita.atabook.org/)　[rentry](https://rentry.co/portgas)　　  ͝𓈒♡
+$${\color{#B33D0B}  ͜͝ ͡  ݁⑅ִ۫　}$$　[atabook](https://lawzos.atabook.org/)　[strawpage](https://theeallblue.straw.page/)　　  ͝𓈒♡
