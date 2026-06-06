@@ -1,4 +1,4 @@
-`۶ৎ <img align="left" width="100" src="https://file.garden/ZmyMAi1zTw_Os_OB/github%20shit/yamace%20psd%20img/IMG_1014%20(3).png"> <img align="left" width="300" src="https://file.garden/aIrFR9W4twp1wUOQ/Untitled364_20260605193046.png">
+۶ৎ <img align="left" width="100" src="https://file.garden/ZmyMAi1zTw_Os_OB/github%20shit/yamace%20psd%20img/IMG_1014%20(3).png"> <img align="left" width="300" src="https://file.garden/aIrFR9W4twp1wUOQ/Untitled364_20260605193046.png">
 
 $${\color{#89CFF0}𑣲𝓳}$$　 <strong>dante</strong>/tusk　   they/he　   intersex
 
@@ -36,4 +36,4 @@ $${\color{#B33D0B}  ͜͝ ͡  ݁⑅ִ۫　}$$　atabook　rentry　　  ͝𓈒♡
 <p align="center">
        $${\color{#6D9DAB} 𝜗𝒞˟}$$　 <a href= "https://github.com/transadori"> main acc</a>　<a href= "https://rentry.co/s-hawk"> extended </a> 　(｡•̀ㅁ•́｡)
 </p>
-<br clear="right"/>`
+<br clear="right"/>
