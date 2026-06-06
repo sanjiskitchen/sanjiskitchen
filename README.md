@@ -4,9 +4,9 @@ $${\color{#89CFF0}𑣲𝓳}$$　 <strong>dante</strong>/tusk　   they/he　   i
 
 black & hispanic　8teen
 
-<img src="https://file.garden/aIrFR9W4twp1wUOQ/tumblr_450075491f473925acbe84e0673d6f60_c5b00176_1280.png" />
+<img src="https://file.garden/aIrFR9W4twp1wUOQ/tumblr_97a69f1e1791bd64b2807b65be17ae43_3afad4ca_250_1.png" />
 
-$${\color{#E06D0D}selective}$$　   <em>sharing</em>　 yumeshipper　 🍡
+$${\color{#E06D0D} selective}$$　   <em>sharer</em>　 yumeshipper　 🍡
  
 🍔　 aroace　   gay(mlm)　 soft alpha
 
