@@ -8,7 +8,7 @@ $${\color{#89CFF0}𑣲𝓳}$$　 <strong>dante</strong>/tusk　   they/he　   i
 
 $${\color{#F4BB44}\text{ｓelective}}$$　   <em>sharer</em>　 yumeshipper　 🍡
 
-🍔　 aroace　   gay(mlm)　 soft alpha
+🍔　 aroace　   mlm　 soft alpha
 
  
  🔥 　 　iwec   always　   (⁠ﾉﾟ⁠0ﾟ⁠)⁠ﾉ⁠ 
@@ -16,7 +16,7 @@ $${\color{#F4BB44}\text{ｓelective}}$$　   <em>sharer</em>　 yumeshipper　 �
 $${\color{#B33D0B}  ͜͝ ͡  ݁⑅ִ۫　}$$　atabook　rentry　　  ͝𓈒♡
 
 <br clear="left"/>
-<img align="right" width="100" src="https://file.garden/ZmyMAi1zTw_Os_OB/github%20shit/yamace%20psd%20img/IMG_1014%20(3).png">  <img align="right" width="300" src="https://file.garden/ZmyMAi1zTw_Os_OB/github%20shit/yamace%20psd%20img/6C23697C-54D6-4EFD-A855-C2C033689BB1%20(8).png">
+<img align="right" width="100" src="https://file.garden/ZmyMAi1zTw_Os_OB/github%20shit/yamace%20psd%20img/IMG_1014%20(3).png">  <img align="right" width="300" src="https://file.garden/aIrFR9W4twp1wUOQ/Untitled364_20260605193150.png">
 
 <p align="center">
        <em>fav　 arc</em>:　enies lobby　/　at　<ins>whole cake</ins>
