@@ -1,22 +1,81 @@
-<div id="ata" align="center">
+۶ৎ<img align="left" width="435" src="https://file.garden/aIrFR9W4twp1wUOQ/Untitled364_20260605193046.png">
+
+$${\color{#89CFF0}𑣲𝓳}$$　 <strong>dante</strong>/tusk　   they/he　   intersex
+
+black & hispanic　8teen
+
+<img src="https://file.garden/aIrFR9W4twp1wUOQ/tumblr_450075491f473925acbe84e0673d6f60_c5b00176_1280.png" />
+
+$${\color{#E06D0D}selective}$$　   <em>sharing</em>　 yumeshipper　 🍡
+ 
+🍔　 aroace　   gay(mlm)　 soft alpha
+
+ 
+ 🔥 　 　iwec   always　   (⁠ﾉﾟ⁠0ﾟ⁠)⁠ﾉ⁠ 
+ 
+$${\color{#B33D0B}  ͜͝ ͡  ݁⑅ִ۫　}$$　[atabook](https://fushiita.atabook.org/)　[rentry](https://rentry.co/portgas)　　  ͝𓈒♡
+
+<br clear="left"/>
+<img align="right" width="100" src="https://file.garden/ZmyMAi1zTw_Os_OB/github%20shit/yamace%20psd%20img/IMG_1014%20(3).png">  <img align="right" width="300" src="https://file.garden/ZmyMAi1zTw_Os_OB/github%20shit/yamace%20psd%20img/6C23697C-54D6-4EFD-A855-C2C033689BB1%20(8).png">
+
+<p align="center">
+       <em>fav　 arc</em>:　enies lobby　/　at　<ins>whole cake</ins>
+ </p>
+ <p align="center">
+       multiship.　 📿　 fixation:　acelaw/yamace
+ </p>
+ <p align="center">
+        <strong>DNI</strong>　   proship  maroace  lawlu  <strong>etc</strong>
+ </p>
+ <p align="center">
+        i block freely/will warn mfs ab weirdos so
+ </p>
+  <p align="center">
+       <strong>fandom  dniuid</strong>　 cus　yall weird
+  </p>
+<p align="center">
+       $${\color{#6D9DAB} 𝜗𝒞˟}$$　 <a href= "https://github.com/transadori"> main acc</a>　<a href= "https://rentry.co/s-hawk"> extended </a> 　(｡•̀ㅁ•́｡)
+</p>
+<br clear="right"/>`
 
 
-![](https://file.garden/aIrFR9W4twp1wUOQ/Untitled55_20250806200415.png)
 
+`<img align="left" width="435" src="https://file.garden/ZmyMAi1zTw_Os_OB/github%20shit/yamace%20psd%20img/6C23697C-54D6-4EFD-A855-C2C033689BB1%20(4).png">
 
-<div id="ata" align="center">
+$${\color{#B99A4F}𐅛 ͚     𓈒ֵ۫𓏽}$$　 <strong>nox</strong>is　   he/star　   transmasc
 
- ‎ ‎ ‎
-[🧀 ata](https://lawzos.atabook.org/)‎ ‎ ‎
+black　8teen　mentally 　disabled
 
+<img src="https://file.garden/ZmyMAi1zTw_Os_OB/github%20shit/yamace%20psd%20img/tumblr_97a69f1e1791bd64b2807b65be17ae43_3afad4ca_250.webp" />
 
-<div id="header" align="center">
+$${\color{#E06D0D} hyper}$$　   <em>sharer</em>　 yumeshipper　 🍡
+ 
+🍔　 abropoly　   abrorom　 loner alpha
 
-[sanji](https://gifypet.neocities.org/pet/pet.html?name=sanji&dob=1775680942&gender=m&element=Fire&pet=https%3A%2F%2Ffile.garden%2FaIrFR9W4twp1wUOQ%2Fsanji-one-pice.gif&map=https%3A%2F%2Ffile.garden%2FaIrFR9W4twp1wUOQ%2Fimages.jpeg&background=wood.jpg&tablecolor=black&textcolor=black) & [luffy](https://gifypet.neocities.org/pet/pet.html?name=luffy&dob=1775681074&gender=m&element=Earth&pet=https%3A%2F%2Ffile.garden%2FaIrFR9W4twp1wUOQ%2Fluffy.gif&map=https%3A%2F%2Ffile.garden%2FaIrFR9W4twp1wUOQ%2Fimages.jpeg&background=wood.jpg&tablecolor=black&textcolor=black) hehe 
-‎ ‎
-‎ ‎ ‎ 
+ 
+ 🔥 　 mood swings　iwecaut.　   (⁠ﾉﾟ⁠0ﾟ⁠)⁠ﾉ⁠ 
+ 
+$${\color{#B33D0B}  ͜͝ ͡  ݁⑅ִ۫　}$$　[atabook](https://fushiita.atabook.org/)　[rentry](https://rentry.co/portgas)　　  ͝𓈒♡
 
-‎![](https://komarev.com/ghpvc/?username=your-github-username&label=ლ&color=yellow)
+<br clear="left"/>
+<img align="right" width="100" src="https://file.garden/ZmyMAi1zTw_Os_OB/github%20shit/yamace%20psd%20img/IMG_1014%20(3).png">  <img align="right" width="300" src="https://file.garden/ZmyMAi1zTw_Os_OB/github%20shit/yamace%20psd%20img/6C23697C-54D6-4EFD-A855-C2C033689BB1%20(8).png">
 
-
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=zk3kqasav3276idzo94kiu70w&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=31877d&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
+<p align="center">
+       <em>fav　 arc</em>:　enies lobby　/　at　<ins>whole cake</ins>
+ </p>
+ <p align="center">
+       multiship.　 📿　 fixation:　acelaw/yamace
+ </p>
+ <p align="center">
+        <strong>DNI</strong>　   proship  maroace  lawlu  <strong>etc</strong>
+ </p>
+ <p align="center">
+        i block freely/will warn mfs ab weirdos so
+ </p>
+  <p align="center">
+       <strong>fandom  dniuid</strong>　 cus　yall weird
+  </p>
+<p align="center">
+       $${\color{#6D9DAB} 𝜗𝒞˟}$$　 <a href= "https://github.com/transadori"> main acc</a>　<a href= "https://rentry.co/s-hawk"> extended </a> 　(｡•̀ㅁ•́｡)
+</p>
+<br clear="right"/>`
